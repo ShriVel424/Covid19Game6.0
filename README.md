@@ -1,1 +1,1 @@
-# Covid19Game6.0
+# Covid19Game-Shrika Velagapudi
